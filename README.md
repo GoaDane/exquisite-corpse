@@ -8,4 +8,8 @@ the Brussels people, who have a strange passion for fries and beer, and others t
 Once he arrived in Anderlecht, he realized that the inhabitants of this region had a strange admiration for a god called "Football".
 A strange sport played with a ball followed by two teams of 11 peoples.
 They must coordinate to gather and then put the ball in the adversarie's goal. Each time
-they do that they get more point. But no explanations can explain this cult
+they do that they get more point. But no explanations can explain this cult.
+
+Football players were considered as gods. They couldn't go in the streets without being jumped on by hundreds of people.
+It was really sad for them to not be able to be free. Hopefully, they had beers and fries to be more happy.
+And money, a lot of money. Money money money money $$$$$$$$.
